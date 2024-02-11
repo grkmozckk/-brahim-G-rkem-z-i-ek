@@ -3,4 +3,4 @@
 
 
 🌐 Socials:
-[![LinkedIn] https://www.linkedin.com/in/grkmozckk/ 
+[LinkedIn] https://www.linkedin.com/in/grkmozckk/ 
